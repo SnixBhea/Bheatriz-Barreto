@@ -2,7 +2,7 @@
 
 **`Desenvolvedora FullStack`**
 
-Me chamo Bheatriz Barreto Rocha, tenho 28 anos e sou natural de São Paulo. Concluí o ensino médio na Escola Estadual Professor Alberto Levy. Conclui o curso de Análise e Desenvolvimento de Sistemas na Universidade Estácio de Sá. 💻 Apaixonada por transformar ideias em soluções digitais.📈 Sempre buscando novas tecnologias e melhores práticas para criar aplicações escaláveis e eficientes.🎯 Objetivo: Contribuir para projetos que impactem positivamente a vida das pessoas. 📫 Vamos colaborar? Me encontre em: bheatrizbarreto@gmail.com ou Bheatriz Barreto.
+Me chamo Bheatriz Barreto Rocha, tenho 28 anos e sou natural de São Paulo. Concluí o ensino médio na Escola Estadual Professor Alberto Levy. Conclui o curso de Análise e Desenvolvimento de Sistemas na Universidade Estácio de Sá. 💻 Apaixonada por transformar ideias em soluções digitais.📈 Sempre buscando novas tecnologias e melhores práticas para criar aplicações escaláveis e eficientes.🎯 Objetivo: Contribuir para projetos que impactem positivamente a vida das pessoas. 📫 Vamos colaborar? Me encontre em: bheatrizbarreto@gmail.com ou Bheatriz Barreto (https://www.linkedin.com/in/bheatriz-barreto-21566a139/).
 
 ---
 
